@@ -1,0 +1,2 @@
+# Estudos_Blender_2026
+Estudos_Blender_2026
